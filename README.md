@@ -1,1 +1,1 @@
-https://youtu.be/kWiCuklohdY 하는중
+https://youtu.be/kWiCuklohdY?t=3116 하는중
